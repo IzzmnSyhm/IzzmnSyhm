@@ -1,4 +1,4 @@
-# Hi, I'm Izzman 👋
+# Hi, I'm Muhd Izzman 👋
 
 🎓 Diploma in Computer Science, UiTM Melaka Kampus Jasin
 
