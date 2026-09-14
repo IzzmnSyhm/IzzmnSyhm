@@ -21,4 +21,4 @@
 - Email: izzman1204@gmail.com
 - LinkedIn: www.linkedin.com/in/muhd-izzman
 
-⚡ CGPA: 3.95
+⚡ CGPA: 3.91
